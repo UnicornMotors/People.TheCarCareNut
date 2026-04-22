@@ -4,6 +4,7 @@ https://www.youtube.com/@TheCarCareNut
 
 # Top.Favorite:
 - [How Does a Toyota Engine with 300,000 Miles Look Like On The Inside?](https://youtu.be/ug--U5FkTTo)
+- [Don't Make These Mistakes When Buying a Used Car!](https://youtu.be/d0y71jkDejc)
 
 # Favorite:
 - [Mechanics Are Vanishing - Here's What's Really Happening](https://youtu.be/9cfbhxsqW84)
