@@ -18,3 +18,4 @@ https://www.youtube.com/@TheCarCareNut
 
 # Toyota.
 - [How does Toyota 4WD System works and why is it reliable?](https://youtu.be/Lhx-RMhWyaM)
+- [NEVER Buy a Toyota Like THIS ONE! Hint : It's not The Sequoia!](https://youtu.be/MH5Pu2p2lQ4)
