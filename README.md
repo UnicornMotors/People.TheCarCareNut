@@ -11,6 +11,7 @@ https://www.youtube.com/@TheCarCareNut
 - [Mechanics Are Vanishing - Here's What's Really Happening](https://youtu.be/9cfbhxsqW84)
 - [When Should You Move On From Your Old Car? And When to Keep It?](https://youtu.be/poZilb-cOOY)
 - [Here Are The BIGGEST Red Flags When Buying a Used Car! BE AWARE!](https://youtu.be/gF43Kdnh6BU)
+- [Can Modern Turbo Engines Be Reliable? Here's The TRUTH!](https://youtu.be/BnINqf6zXac)
 
 # Inspire:
 - [Don't Make These Mistakes When Buying a Used Car!](https://youtu.be/d0y71jkDejc)
